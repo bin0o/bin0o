@@ -1,4 +1,4 @@
-# ALBINUUUU
+# MANUEL ALBINO
 ## Hi there, I’m currently studying Computer Science and Engineering at Instituto Superior Técnico.
 
 
